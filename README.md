@@ -8,18 +8,3 @@ I am now 15 years old, I love coding at my 12 years and love web design from 13 
 **__**
 **SOCIAL MEDIA**
 Instagram : [__@sheva29__](https://www.instagram.com/_sheva29__/) 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
